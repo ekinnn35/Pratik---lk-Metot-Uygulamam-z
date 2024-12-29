@@ -1,0 +1,1 @@
+# Pratik - İlk Metot Uygulamamız
